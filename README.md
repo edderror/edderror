@@ -1,3 +1,10 @@
 <p align="center">
-  <!-- Framed Image with Star Cutout -->
-  <img src="https://chat.openai.com/mnt/data/framed_characters.png" width="300px"><br>
+  <!-- Framed Image -->
+  <img src="https://raw.githubusercontent.com/edderror/edderror/main/framed.png" width="300px"><br>
+
+  <!-- Black & White Stamp -->
+  <img src="https://raw.githubusercontent.com/edderror/edderror/main/stamp_bw.png" width="100px">
+
+  <!-- Red/Pink Stamp -->
+  <img src="https://raw.githubusercontent.com/edderror/edderror/main/stamp_red.png" width="100px">
+</p>
