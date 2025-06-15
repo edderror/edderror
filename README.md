@@ -10,8 +10,7 @@ i joke around a lot w/ my friends, but if my jokes ever make you uncomfortable, 
 my mbti is INFP-T.
 i’m 16
 i’m biromantic, yeah yeah, but sometimes my flags change depending on how i really feel.
-i am taken 
-thats all
+i am taken. thats all BAII
   <!-- Black & White Stamp -->
   <img src="https://64.media.tumblr.com/8077c5e0f25caec089928faca543e08b/9c70f435e1e37c85-b0/s100x200/f2110091768f62748e52837abd05506ec9b45535.gifv" width="100px">
 
