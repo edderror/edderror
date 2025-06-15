@@ -11,6 +11,7 @@ my mbti is INFP-T.
 i’m 16
 i’m biromantic, yeah yeah, but sometimes my flags change depending on how i really feel.
 i am taken.
+I play a lot of games like roblox, star rail and others yea
 I have discord but ask for it first please
 thats all BAII
 <p align="center">
