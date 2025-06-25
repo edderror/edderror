@@ -7,7 +7,7 @@
 <p align="center"><p><p align="center">infj ‎ 4w5 + multifandoms/multishipper</p>
 <p align="center"><p><p align="center">bisexual ace ─ 6teen</p>
 <p align="center"><p><p align="center">adhd + c-ptsd / trauma</p>
-<p align="center"><p class="fancy-line"><p align="center">ʚ ‎ ‎ int!! ‎ ‎ alnst, genshin, bsd + forsaken/i love anime. ‎ ‎ c'h YES YES ‎ ‎ ɞ</p>
+<p align="center"><p class="fancy-line"><p align="center">ʚ ‎ ‎ int w/ me pls pls!! i love rp a lot! fandoms >‎ ‎ alnst, genshin, bsd + forsaken/i love anime. ‎ ‎ c'h YES YES ‎ ‎ ɞ</p>
 <p align="center">proshippers, problematic, etc do not int w/ me</p> 
 <p align="center">taken<3, H<img src="https://64.media.tumblr.com/583a888f4c6b5fb4e263febdd26803d0/0d3ae9d54e1e9bde-02/s75x75_c1/33f646b30f8218986ee7d0446be80d6da527a389.gif" alt="GIF">
 <p align="center"><img src="https://64.media.tumblr.com/d14106dff1ac61ed455bf3297d9c135c/9340effef5813d71-5f/s400x600/dac75a4104ee9f33e2cdc65ed2fecf5ea4607d13.pnj" alt="Image">
