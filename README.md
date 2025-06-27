@@ -4,10 +4,9 @@
  <p align="center"> <h2 style="text-align: center; font-weight: 700; font-size: 2.5rem; margin-bottom: 15px; letter-spacing: 2px; color: #72aee6;"><p align="center">𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 <img src="https://64.media.tumblr.com/add1806e45b769f7a8f468461515b0d9/3ba0d605b906290a-d9/s1280x1920/daf8674874543b29ab791732e48e7948013528d3.gifv">
 <p align="center"><img src="https://64.media.tumblr.com/71c6dbf773bbff18719850432c9f1a67/24c664a5bfe5e10c-c8/s400x600/75c18f24d73ceffb46df3bf07f104fcebd222890.pnj">
 <p align="center"> edd / demian. . . . 
-<p align="center"> semi-active  
-<p align="center"> lvl39 ✦ she/they + any 
+<p align="center"> lvl39 ✦ she/they + any - semi-active  
 <p align="center"> ✧ infj 4w5  
-<p align="center"> "My star, my night / my god, my universe" <img src="https://graphic.neocities.org/tumblr_inline_otb6gpi3cv1rgjs1f_500.gif"> 
+<p align="center"> "my god, my universe" <img src="https://graphic.neocities.org/tumblr_inline_otb6gpi3cv1rgjs1f_500.gif"> 
 <p align="center"> hatchet <img src="https://64.media.tumblr.com/421bcd329b3d964c378511cc21516c71/279db8358fc65a94-3c/s75x75_c1/c9713a79170c72219f96730d82c5aaee4a52665b.gifv">
 
 <p align="center">➩ ‎cool things  pjsk <img src="https://64.media.tumblr.com/699cb53aa443a473c997fe8d3c0a042b/7593d826f95a1181-d2/s75x75_c1/517bdb9bbc817347bbf06db5fb2bfbd8c30f58bb.gifv"> ♡ genshin <img src="https://pixelbank.neocities.org/decome/food/f1703151.gif"> ♡ talk sleeping <img src="https://pixelbank.neocities.org/decome/instuments/c49227cb.gif">  
