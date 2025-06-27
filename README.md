@@ -11,7 +11,7 @@
 <p align="center"> hatchet <img src="https://64.media.tumblr.com/421bcd329b3d964c378511cc21516c71/279db8358fc65a94-3c/s75x75_c1/c9713a79170c72219f96730d82c5aaee4a52665b.gifv">
 
 <p align="center">➩ ‎cool things  pjsk <img src="https://64.media.tumblr.com/699cb53aa443a473c997fe8d3c0a042b/7593d826f95a1181-d2/s75x75_c1/517bdb9bbc817347bbf06db5fb2bfbd8c30f58bb.gifv"> ♡ genshin <img src="https://pixelbank.neocities.org/decome/food/f1703151.gif"> ♡ talk sleeping <img src="https://pixelbank.neocities.org/decome/instuments/c49227cb.gif">  
-<p align="center">➩favs from  pjsk  ☆ genshin  ☆ alnst  ☆ forsaken  ☆ others    
+<p align="center">➩ favs from  pjsk  ☆ genshin  ☆ alnst  ☆ forsaken  ☆ others    
 
 <p align="center"> info!! ➩ i love drawing  
 <p align="center"> i’m also an editor  
