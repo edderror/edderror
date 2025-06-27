@@ -1,15 +1,27 @@
-<p align="center"><img src="https://64.media.tumblr.com/7d00653b6d57aec78af2327741edb296/9340effef5813d71-d8/s400x600/527ba0faaf8c6302a4f655af96e714bd6385cd91.pnj" alt="Image">
+<p align="center"><img src="https://64.media.tumblr.com/8a59f936a6c9b15b4f39dc7c9aac73d0/24c664a5bfe5e10c-bc/s400x600/4d9bc51b125a259ade9f041d2bc8ff3a74283149.pnj">
 <p align="center"><section style="max-width: 600px; margin: 40px auto; font-family: 'Segoe UI', Tahoma, Geneva, Verdana, sans-serif; color: #f0f0f0; background: rgba(20, 20, 30, 0.85); padding: 30px; border-radius: 15px; box-shadow: 0 0 15px #4a90e2;">
- <p align="center"> <h2 style="text-align: center; font-weight: 700; font-size: 2.5rem; margin-bottom: 15px; letter-spacing: 2px; color: #72aee6;"><p align="center">>ABT ME<3  <img src="https://64.media.tumblr.com/124f7752f33e36fbb3fa622de4748262/ba85d73a6bdc5e48-5c/s75x75_c1/530ccf006d2750451a9c165c067f3f700211eb40.pnj" alt="Image">></h2>
-  <p align="center"><p style="font-size: 1.2rem; line-height: 1.6;">
-<p align="center"><!DOCTYPE html>
-<p align="center"><p><p align="center">❝ edd or chance ‎  ‎ she/they/any (I change my pronouns depending on how I truly feel)</p>
-<p align="center"><p><p align="center">infj ‎ 4w5 + multifandoms/multishipper</p>
-<p align="center"><p><p align="center">bisexual ace ─ 6teen</p>
-<p align="center"><p><p align="center">adhd + c-ptsd / trauma</p>
-<p align="center"><p class="fancy-line"><p align="center">ʚ ‎ ‎ int w/ me pls pls!! i love rp a lot! fandoms >‎ ‎ alnst, genshin, bsd + forsaken/i love anime. ‎ ‎ c'h YES YES ‎ ‎ ɞ</p>
-<p align="center">proshippers, problematic, etc do not int w/ me</p> 
-<p align="center">taken<3, H<img src="https://64.media.tumblr.com/583a888f4c6b5fb4e263febdd26803d0/0d3ae9d54e1e9bde-02/s75x75_c1/33f646b30f8218986ee7d0446be80d6da527a389.gif" alt="GIF">
-<p align="center"><img src="https://64.media.tumblr.com/d14106dff1ac61ed455bf3297d9c135c/9340effef5813d71-5f/s400x600/dac75a4104ee9f33e2cdc65ed2fecf5ea4607d13.pnj" alt="Image">
-<p align="center"></body>
-<p align="center"></html>
+ <p align="center"> <p align="center"><img src="https://64.media.tumblr.com/c1a267bb906ef21a31af1199749d1bc2/24c664a5bfe5e10c-c9/s400x600/7ce4b427244b01cef80c995bb1fa267d814640a8.gifv">
+ <p align="center"> <h2 style="text-align: center; font-weight: 700; font-size: 2.5rem; margin-bottom: 15px; letter-spacing: 2px; color: #72aee6;"><p align="center">𝐚𝐛𝐨𝐮𝐭 𝐦𝐞
+<p align="center"><img src="https://64.media.tumblr.com/71c6dbf773bbff18719850432c9f1a67/24c664a5bfe5e10c-c8/s400x600/75c18f24d73ceffb46df3bf07f104fcebd222890.pnj">
+<p align="center"> edd / demian. . . . 
+<p align="center"> semi-active  
+<p align="center"> lvl39 ✦ she/they + aby 
+<p align="center"> ✧ infj 4w5  
+<p align="center"> H<img src="https://i.ibb.co/x596YYf/IMG-7201.gif">
+
+<p align="center">➩ ‎cool things  pjsk <img src="https://64.media.tumblr.com/699cb53aa443a473c997fe8d3c0a042b/7593d826f95a1181-d2/s75x75_c1/517bdb9bbc817347bbf06db5fb2bfbd8c30f58bb.gifv"> ♡ genshin <img src="https://pixelbank.neocities.org/decome/food/f1703151.gif"> ♡ talk sleeping <img src="https://pixelbank.neocities.org/decome/instuments/c49227cb.gif">  
+<p align="center">➩favs from  pjsk  ☆ genshin  ☆ others  
+
+<p align="center"> info!! ➩ i love drawing  
+<p align="center"> i’m also an editor  
+<p align="center"> i cosplay a lot <3  
+<p align="center"> multifandom + multishipper  
+<p align="center"> i’m a lot on pony town but i also like int!  
+<p align="center"> ➩ so if i don’t reply, w2i w/ me!  
+
+<p align="center"> dni  
+<p align="center">➩ participates in discourse  
+<p align="center">➩ nsfw, -13, basic dni criteria, proshippers
+
+<p align="center">➩ to know about me more check theese links!<img src="https://i.ibb.co/C8xST9k/IMG-7998.gif">
+<p align="center">https://edderrorr.straw.page/ / https://rentry.co/ED3ERR0R <img src="https://gifs.crd.co/assets/images/gallery21/1e5991c1.gif?v=d417d32b"> 
