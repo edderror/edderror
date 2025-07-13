@@ -8,7 +8,7 @@
     <p align="center">
       hi i'm <b>~edd~</b>, chance, or (edd)error. i use she/they and am a <img src="https://cdn.discordapp.com/emojis/1113878447761137744.webp?size=22&quality=lossless" alt="emoji" width="22" height="22"> <img src="https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless" alt="emoji2" width="22" height="22">
 </p>
-</p> man. i'm a <b>~ptsd~</b> with adhd, all of these may affect my interactions with others.
+</p> <p align="center">man. i'm a <b>~ptsd~</b> with adhd, all of these may affect my interactions with others.
     </p>
     <p align="center">
       i'm not often talkative but i don't mind holding up a conversation, my social battery may run out very quickly depending on how i feel, please don't feel like it was your fault, haha. i'm sadly also not so good at responding to people, so forgive me if i take forever to respond to you, please don't bug me about it.
