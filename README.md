@@ -1,28 +1,27 @@
-<p align="center"><img src="https://64.media.tumblr.com/8a59f936a6c9b15b4f39dc7c9aac73d0/24c664a5bfe5e10c-bc/s400x600/4d9bc51b125a259ade9f041d2bc8ff3a74283149.pnj">
-<p align="center"><section style="max-width: 600px; margin: 40px auto; font-family: 'Segoe UI', Tahoma, Geneva, Verdana, sans-serif; color: #f0f0f0; background: rgba(20, 20, 30, 0.85); padding: 30px; border-radius: 15px; box-shadow: 0 0 15px #4a90e2;">
- <p align="center"> <p align="center"><img src="https://64.media.tumblr.com/c1a267bb906ef21a31af1199749d1bc2/24c664a5bfe5e10c-c9/s400x600/7ce4b427244b01cef80c995bb1fa267d814640a8.gifv">
- <p align="center"> <h2 style="text-align: center; font-weight: 700; font-size: 2.5rem; margin-bottom: 15px; letter-spacing: 2px; color: #72aee6;"><p align="center">𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 <img src="https://64.media.tumblr.com/add1806e45b769f7a8f468461515b0d9/3ba0d605b906290a-d9/s1280x1920/daf8674874543b29ab791732e48e7948013528d3.gifv">
-<p align="center"><img src="https://64.media.tumblr.com/71c6dbf773bbff18719850432c9f1a67/24c664a5bfe5e10c-c8/s400x600/75c18f24d73ceffb46df3bf07f104fcebd222890.pnj">
-<p align="center"> edd / demian. . . . 
-<p align="center"> lvl39 ✦ she/they + any - semi-active  
-<p align="center"> ✧ infj 4w5  
-<p align="center"> "my god, my universe" <img src="https://graphic.neocities.org/tumblr_inline_otb6gpi3cv1rgjs1f_500.gif"> 
-<p align="center"> hatchet <img src="https://64.media.tumblr.com/421bcd329b3d964c378511cc21516c71/279db8358fc65a94-3c/s75x75_c1/c9713a79170c72219f96730d82c5aaee4a52665b.gifv">
-
-<p align="center">➩ ‎cool things  pjsk <img src="https://64.media.tumblr.com/699cb53aa443a473c997fe8d3c0a042b/7593d826f95a1181-d2/s75x75_c1/517bdb9bbc817347bbf06db5fb2bfbd8c30f58bb.gifv"> ♡ genshin <img src="https://pixelbank.neocities.org/decome/food/f1703151.gif"> ♡ talk sleeping <img src="https://pixelbank.neocities.org/decome/instuments/c49227cb.gif">  
-<p align="center">➩ favs from  pjsk  ☆ genshin  ☆ alnst  ☆ forsaken  ☆ others    
-
-<p align="center"> info!! ➩ i love drawing  
-<p align="center"> i’m also an editor  
-<p align="center"> i cosplay a lot <3  
-<p align="center"> multifandom + multishipper  
-<p align="center"> i’m a lot on pony town but i also like int!  
-<p align="center"> ➩ so if i don’t reply, w2i w/ me!  
-
-<img src="https://64.media.tumblr.com/699cb53aa443a473c997fe8d3c0a042b/7593d826f95a1181-d2/s75x75_c1/517bdb9bbc817347bbf06db5fb2bfbd8c30f58bb.gifv">
-<p align="center"> dni  
-<p align="center">➩ participates in discourse  
-<p align="center">➩ nsfw, -13, basic dni criteria, proshippers
-
-<p align="center">➩ to know about me more check theese links!<img src="https://i.ibb.co/C8xST9k/IMG-7998.gif">
-<p align="center">https://edderrorr.straw.page/ / https://rentry.co/ED3ERR0R 
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <p align="center">sleeping...</p>
+    <p align="center">
+      <img src="https://i.postimg.cc/VsVQCsNc/maf.png" alt="maf image">
+    </p>
+    <p align="center">
+      hi i'm <b>~edd~</b>, chance, or (edd)error. i use she/they and am a <img src="https://cdn.discordapp.com/emojis/1113878447761137744.webp?size=22&quality=lossless" alt="emoji" width="22" height="22"> <img src="https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless" alt="emoji2" width="22" height="22">
+</p>
+</p> man. i'm a <b>~ptsd~</b> with adhd, all of these may affect my interactions with others.
+    </p>
+    <p align="center">
+      i'm not often talkative but i don't mind holding up a conversation, my social battery may run out very quickly depending on how i feel, please don't feel like it was your fault, haha. i'm sadly also not so good at responding to people, so forgive me if i take forever to respond to you, please don't bug me about it.
+    </p>
+    <p align="center">
+      besides that, i really love chance (forsaken), astro (dw), and more that are listend. i'm literally chance, i fear. i generally like roblox (especially write a letter and forsaken.)
+    </p>
+    <p align="center">
+      i also hold music close to my heart, it's the way i express myself, i'm music's #1 fan. i love almost every single type of music, you'd have to give me a genre if you'd want my favorite song. but my interests are primarily from roblox and anime.
+    </p>
+    <p align="center">time to gamble!! :)</p>
+    <p align="center"> 007n7 my love. </p>
+<p align="center"> check this out!! https://edderrorr.straw.page/ https://rentry.co/edderr0r </p>
+  </div>
+</body>
+</html>
