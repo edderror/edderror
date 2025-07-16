@@ -6,7 +6,7 @@
       <img src="https://i.postimg.cc/VsVQCsNc/maf.png" alt="maf image">
     </p>
     <p align="center">
-      hi i'm <b>~edd~</b>, chance, or (edd)error. i use she/they and am a <img src="https://cdn.discordapp.com/emojis/1113878447761137744.webp?size=22&quality=lossless" alt="emoji" width="22" height="22"> <img src="https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless" alt="emoji2" width="22" height="22">
+      hi i'm <b>~edd~</b>, chance, or (edd)error. i use they/she/he + all and am a <img src="https://cdn.discordapp.com/emojis/1113878447761137744.webp?size=22&quality=lossless" alt="emoji" width="22" height="22"> <img src="https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless" alt="emoji2" width="22" height="22">
 </p>
 </p> <p align="center">man. i'm a <b>~ptsd~</b> with adhd, all of these may affect my interactions with others.
     </p>
