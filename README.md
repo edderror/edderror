@@ -7,4 +7,4 @@
     edd
 
         
-    she/they 
+        she
