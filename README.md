@@ -7,4 +7,4 @@
     edd
 
         
-    https://edderrorr.straw.page/ 
+    she/they 
