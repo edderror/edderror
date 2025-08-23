@@ -1,7 +1,9 @@
 <!DOCTYPE html>
 <html lang="en">
 <head>
-    <p align="center"><img="tumblr_a34a5c9879ffb1b24cf049c41ccdf8bb_d1b1b235_250.png">
+    <p <p align="center">
+  <img src="https://64.media.tumblr.com/a34a5c9879ffb1b24cf049c41ccdf8bb/40ad8a7980250e80-dd/s250x400/d1b1b235ced6648a786ffc3a6dd977877658b80a.png" alt="tumblr image" width="250" height="250">
+</p>
     <p align="center" Hello
 
 <p align="center">I’m Edd.
