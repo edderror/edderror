@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html lang="en">
 <head>
-    <p align="center">sleeping...</p>
+    <p align="center">...</p>
     <p align="center" Hello
 
 <p align="center">I’m Edd.
@@ -17,6 +17,6 @@ I have ADHD and PTSD make me act in ways I can’t always control—sometimes I 
 I don’t mind hanging out with my friends, but these days I just don’t meet people like I used to.
 I get overwhelmed easily and feel sad if something goes wrong.
 
-<p align="center">**Vent.**
+<p align="center">Vent.
 <p align="center">I cry over things I feel are stupid. I overthink until my head hurts. I get paranoid and start questioning if people are lying, even when I don’t want to.
 I overthink a lot, and my emotions get heavy. Sometimes I don’t know how to handle them, but I still care deeply. I love with my whole heart, even if it makes me feel broken sometimes.
