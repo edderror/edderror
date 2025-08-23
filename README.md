@@ -5,11 +5,11 @@
     <p align="center" Hello
 
 <p align="center">I’m Edd.
-I have ADHD and PTSD make me act in ways I can’t always control—sometimes I vanish into silence, sometimes I explode w feelings I can’t contain.
+I have ADHD and PTSD make me act in ways I can’t always control sometimes I vanish into silence, sometimes I explode w feelings I can’t contain.
 
 <p align="center">I’m sorry if that makes me hard to deal with.
 
-<p align="center">But all of that… I still love with everything in me. I love my boyfriend Hatchet w my whole heart. And I also love my friends, I love music, bcz it says the words I can’t. I love characters like Chance and Astro, because they remind me I’m not alone in how I feel. I love soft, emotional moments—the kind that make me feel alive and seen.
+<p align="center">But all of that… I still love with everything in me. I love my boyfriend Hatchet w my whole heart. And I also love my friends, I love music, bcz it says the words I can’t. I love characters like Chance and Astro, because they remind me I’m not alone in how I feel. I love soft, emotional moments the kind that make me feel alive and seen.
 
 <p align="center">I may be quiet, awkward, or tired. I may draw, edit, and create slowly, but it’s because I put pieces of myself into everything I make. I may seem distant, but I’m always there, always caring, always thinking.
 
