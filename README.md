@@ -28,7 +28,6 @@
 
 <p align="center">Toxic or manipulative behavior lying, gaslighting, using people.
 
-<p align="center">People who don’t respect your husband or your relationship.
 
 <p align="center">Those who mock your fandoms, interests, or aesthetic.
 
