@@ -1,6 +1,6 @@
 <p align="center">
 <p align="center"><img src="https://64.media.tumblr.com/6cd5937ad3829a0ffd1c1eb4c60aa134/cc21a0b801d83425-95/s1280x1920/d21cb541f72361e112dbddc5302bf01da7511780.gifv" alt="cute art" width="500">
-<p align="center">i go by edd / edderror. i am enfj mbti tho,, i’m not subtle about caring if i love someone, it shows. 
+<p align="center">i go by edd / edderror. i am enfj mbti tho,, i’m not subtle about caring if i love someone. 
   i’m expressive, affectionate, and kind of intense about the people that matter to me. i don’t really care about being 
 <p align="center">socially aware or doing things the “right” way if it doesn’t feel honest.
 <p align="center">i’m dreamy but not stupid. poetic but still grounded. i get attached deeply 
@@ -13,9 +13,8 @@
   how i process things i don’t want to say out loud. i latch onto songs the same way i latch onto people emotionally, 
   obsessively, on loop. certain lyrics feel like they were written at me, not for me. 
   i don’t just listen to music, i live in it.
-<p align="center">i get tired easily, and my sleep is kind of shit sometimes. i do try to go 
+<p align="center">i get tired easily, and my sleep is kind of shit sometimes. i do try to go to sleep at the right time, but i’m also busy with school. 
 <p align="center">also, i’m into anime,, i really like bungo stray dogs. i also like genshin, hsr, and project sekai / pjs, alien stage. i’m in other fandoms too,,like forsaken (i’m forgetting some). i struggle with adhd and cptsd sometimes, and i also deal with memory loss.
-  to sleep at the right time, but i’m also busy with school.
 <p align="center"> c ' h always + semi active on pony town/roblox
 <p align="center">if you see me on pony town w2i, or if i’m online with others, i’m definitely just hanging out with friends there
 <p align="center">active on discord, but sometimes i don’t reply right away because of irl issues or being busy irl/schoolwork + video games sometimes
