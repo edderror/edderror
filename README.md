@@ -14,7 +14,7 @@
   obsessively, on loop. certain lyrics feel like they were written at me, not for me. 
   i don’t just listen to music, i live in it.
 <p align="center">i get tired easily, and my sleep is kind of shit sometimes. i do try to go to sleep at the right time, but i’m also busy with school. 
-<p align="center">also, i’m into anime,, i really like bungo stray dogs. i also like genshin, hsr, and project sekai / pjs, alien stage. i’m in other fandoms too,,like forsaken (i’m forgetting some). i struggle with adhd and cptsd sometimes, and i also deal with memory loss.
+<p align="center">also, i’m into anime,, i really like bungo stray dogs. i also like genshin, hsr, and project sekai / pjsk, alien stage. i’m in other fandoms too,,like forsaken, hazbin hotel,, (i’m forgetting some). i struggle with adhd and cptsd sometimes, and i also deal with memory loss.
 <p align="center"> c ' h always + semi active on pony town/roblox
 <p align="center">if you see me on pony town w2i, or if i’m online with others, i’m definitely just hanging out with friends there
 <p align="center">active on discord, but sometimes i don’t reply right away because of irl issues or being busy irl/schoolwork + video games sometimes
