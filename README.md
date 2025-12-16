@@ -5,10 +5,10 @@
 <p align="center">socially aware or doing things the “right” way if it doesn’t feel honest.
 <p align="center">i’m dreamy but not stupid. poetic but still grounded. i get attached deeply 
   and i don’t let go easily. loyalty isn’t optional for me it’s the bare minimum.
-<p align="center">food,, yum, i like to eat food but sometimes struggling w it,, but my favs one are fries and cheeseburger, pizza and cola the soda also monster drink,, 
+<p align="center">food,, yum, i like to eat food but sometimes struggling w it,, but my favs one are fries and cheeseburger, pizza and cola the soda,,
   <p align="center">favorite color is more likely green but also white too,, i know white isn't a color but still i like white.
     <p align="center">my bday is 23th may,,
-<p align="center">i’m into character kinning. i like writing,,
+<p align="center">i’m into character kinning, which means i related to some ficitonal characters,, i like writing,,
 <p align="center">i work on things slowly but intentionally. 
   school exists, stress exists, but i still make room for what i love,, i also like to draw but im suck at it,,
 <p align="center">music matters to me more than i admit. it’s 
