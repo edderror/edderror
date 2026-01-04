@@ -1,5 +1,5 @@
 <p align="center">
-<p align="center"><img src="https://64.media.tumblr.com/6cd5937ad3829a0ffd1c1eb4c60aa134/cc21a0b801d83425-95/s1280x1920/d21cb541f72361e112dbddc5302bf01da7511780.gifv" alt="cute art" width="500">
+<p align="center"><img src="https://www.tumblr.com/pawfettis/784216850890424320/kai-smith-tumblr-layout?source=share" alt="cute art" width="500">
 <p align="center">i go by edd / edderror. i am enfj mbti tho,, i’m not subtle about caring if i love someone. 
   i’m expressive, affectionate, and kind of intense about the people that matter to me. i don’t really care about being, 
 <p align="center">socially aware or doing things the “right” way if it doesn’t feel honest.
